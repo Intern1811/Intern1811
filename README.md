@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Vaishnavi Suryvanshi (@Intern1811)
+- 👀 I’m interested in in web designing 💞️
+- 🌱 I’m currently learning WebDevelopment and Java 
+- 💞️ I’m looking for people who can correct me when I'm wrong in coding
+- 📫 suryvanshivaishnavi108@gmail.com <-- You can reach me through my email.😄
+- ⚡ Fun fact: I do sketching for relaxation.😄
